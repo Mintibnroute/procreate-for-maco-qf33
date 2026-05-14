@@ -1,4 +1,4 @@
-# 
+# Enhance Procreate for macOS with rare Extension for Procreate for macOS - grid systems and UI themes, the #1 extension. Includes grid systems and UI themes for a smoother and more
 
 
 
